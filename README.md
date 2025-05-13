@@ -1,1 +1,1 @@
-# TASK-2
+The "TASK - 2" slide highlights that moderate sales volumes yield the highest profits, with top activity in North American cities. New York and Los Angeles lead in quantity sold, and a few products drive most profits.
